@@ -15,6 +15,6 @@
 * 1/2 lb. white
 
 ## Other
-* 1 lb. matzah meal
+* 4 lb. matzah meal
 * 1/2 lb. cake meal
 * Baking powder
