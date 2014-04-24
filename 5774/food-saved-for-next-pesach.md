@@ -14,6 +14,9 @@
 * 2 lb. brown
 * 1/2 lb. white
 
+## Liquor
+* 600 mL 100 proof Araq
+
 ## Other
 * 4 lb. matzah meal
 * 1/2 lb. cake meal
