@@ -4,7 +4,7 @@
 * Oven
 
 ## Libun Kal (30 min) + Hag'alah
-* Stove top
+* Glass stove top (using burners for libun)
 
 ## Hag'alah
 * All Shabbat silverware
